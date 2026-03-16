@@ -21,7 +21,7 @@
   </br>
   </br>
   </br>
-      
+![Visitor Count](https://profile-counter.glitch.me/{Silis-DoNotCover}/count.svg)
 </p>
  <img src="https://files.catbox.moe/8d7bg2.png"
   align="right"
