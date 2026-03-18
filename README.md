@@ -1,18 +1,8 @@
-<img width="1000" height="260" alt="576c72c4-22b5-4234-b9f1-0bc04691d98b" src="https://github.com/user-attachments/assets/9ea4e48b-7817-4f2e-9965-b60770074d38" />
-<h1> ──Interaction Protocol</h1>
-<img width="500" height="400" alt="image" align="right" src="https://github.com/user-attachments/assets/fc73b4a2-5c6a-45c4-8192-7ec27b263cad" />
-<h3 align="center"> DNI </h3>
-<h5 align="left"> > Basic DNI</h5>
-<h5 align="left"> >> Such as 'T.R.A.S.H' (transphobic, racist, ableist, sexist & homophobic)
-<h5 align="left"> > People who have blocked me, 
-<h5 align="left"> >>or people who I have unresolved conflicts with should refrain from interaction.</h5>
-<img width="400" height="550" align="right" alt="Alias ‘delivery’ (2)" src="https://github.com/user-attachments/assets/898554f6-3887-4692-896e-09bd9f536035" />
-
-
+<p align="center"> 
+<img src="https://files.catbox.moe/tmtmdd.png"/>
 <img src="https://files.catbox.moe/a7y76i.png" width="400" height="700" align="left" />
-<h3 align="center"><strong><u>BYFI!</u></strong> 
-<h6 align="center"><img width="89" height="19" alt="image" src="https://github.com/user-attachments/assets/1f7ad03d-47c6-4a91-8947-2d729f996dd9" />
-
+<h3 align="center"><strong><u>BYFI!</u></strong> <img src="https://files.catbox.moe/5nrfyp.webp"/><img src="https://files.catbox.moe/colkk3.webp"/></h3>
+<h6 align="center">There's only one left! How dubious... 
 <h5 align="center"> Adult ⌇ Prns >> He/It ~ AroAce Spectrum, Cupio, TransMasc <img src="https://github.com/user-attachments/assets/eef12b10-92e0-47bd-a501-21160d3ee1fb" width="25" height="50" /> <img src="https://github.com/user-attachments/assets/803034b8-121a-47af-9a53-bcd22e7c46cb" width="25" height="50""/> <img src="https://github.com/user-attachments/assets/999ec3fb-9c49-48fe-9ef6-5f5a2a0049af" width="25" height="50" /> 
 <h6 align="center"> Don't Copy my Git or one's I've made. Feel free to ask4help. </h6>
 <h5><align="left"> 1. I love tonetags, I use them for myself. If you don't know the tag, just ask.</h5>
