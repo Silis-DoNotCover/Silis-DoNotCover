@@ -3,7 +3,7 @@
 <img width="400" height="270" alt="Max/Mori | He/She | GMT-1" align='left' src="https://github.com/user-attachments/assets/e68d4f84-e000-4667-93ef-a45620655d87" />
 <h3><img width="50" height="50" src="https://64.media.tumblr.com/30dcb8590864f1f8b5ee82b2a78f8953/86f0c5b7edbcb628-e4/s100x200/c25e11e992f067669af2f2dfcbc1252154a2c0a2.gifv"/>BFYI</h3>
 <h5>I have a very hard time with telling jokes from serious statements. Please make sure it is VERY clearly a joke or not. </h5>
-<img width="570" height="163" alt="image" align="center" src="https://github.com/user-attachments/assets/7ad78e42-d255-4b68-ae91-9901c4e40bfb" />
+<img width="400" height="163" alt="image" align="center" src="https://github.com/user-attachments/assets/7ad78e42-d255-4b68-ae91-9901c4e40bfb" />
 <p align="center"> 
 <img src="https://files.catbox.moe/tmtmdd.png"/>
 <img src="https://files.catbox.moe/a7y76i.png" width="400" height="700" align="left" />
