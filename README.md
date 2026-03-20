@@ -1,5 +1,5 @@
 <img width="2035" height="74" alt="image" src="https://github.com/user-attachments/assets/9bb99d87-e1a4-4217-adeb-6773720197d9" />
-<img width="480" height="630" align="left" src="https://github.com/user-attachments/assets/a114dd10-c47c-4025-92c7-12ff1a63fe1a" />
+<img width="450" height="630" align="left" src="https://github.com/user-attachments/assets/a114dd10-c47c-4025-92c7-12ff1a63fe1a" />
 <h3 align="center"> <img width="390" height="350"  src="https://github.com/user-attachments/assets/ed02af29-9617-4198-9f97-08f938edf616" /> </h3>
 <h5 align="left"> 1. I am an Adult + Basic DNI criteria </h5>
 <h5 align="left"> 2. Please ASK before C+H - Friends are always welcome! (A reminder that I dislike sitting in front, especially in groups) </h5>
