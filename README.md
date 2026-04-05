@@ -3,7 +3,7 @@
 <h3 align="center"> <img width="300" height="270"  src="https://github.com/user-attachments/assets/44b3f181-567b-4894-b7dc-f947c7f43cca" /> </h3>
 <h5 align="left"> 1. Please use tone tags with me; It can be very difficult for me to tell tone through text.</h4>
 <h5 align="left"> 2. I am not good at reading social cues. If I ever make you uncomfortable, please tell. Always set boundaries! </h4>
-<h5 align="left"> 3. Please Follow basic DNI Criteria [T.R.A.S.H.]</h4>
+<h5 align="left"> 3. Please Follow basic DNI Criteria [T.R.A.S.H.] (Pro/Dark\Shippers DNI)</h4>
 <h5 align="left"> 4. I am an Adult, <16 please IWC.
 <h3 align="center"> <img width="1000" height="99" alt="image" src="https://github.com/user-attachments/assets/39a465ee-c2a7-40f9-ba70-dce8f76b4eb2" />
 <img width="400" height="400" alt="image" align="right" src="https://github.com/user-attachments/assets/0347c968-373e-4fb7-937b-ecc1f57c3880" />
