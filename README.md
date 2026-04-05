@@ -17,6 +17,6 @@
 <h6 align="center"><img width="300" height="250" src="https://github.com/user-attachments/assets/f13df89e-528b-4b59-ad40-efbd4820a92c" />
 <h3 align="left"> >> Media I Enjoy 
 <h5 align="left"> Roblox > Grace, Phighting, , BlockTales, 99 Nights in The Forest, Depth Spelunking, Dandy's World, Guts & BlackPowder, Dolly's Factory, bee Swarm Sim (OTHER FANS PEASE INT)
-<h5 align="left"> Other> Dead By Daylight, Minecraft, MineSweeper, Slime Rancher (1&2), OverWatch, Marvel Rivals, UnderTale ([UT]esp AUs!), DeltaRune[DR], Arcane(Show), BoJack Horseman (Show), The Pitt(Show), House MD(Show), Welcome to Demon School Iruma-Kun(Anime/Manga)
+<h5 align="left"> Other> Dead By Daylight, Minecraft, Minecraft ARGs, MineSweeper, Slime Rancher (1&2), OverWatch, Marvel Rivals, UnderTale ([UT]esp AUs!), DeltaRune[DR], Arcane(Show), BoJack Horseman (Show), The Pitt(Show), House MD(Show), Welcome to Demon School Iruma-Kun(Anime/Manga)
 <h3 align="left"> >> Comfort Characters
-<h5 align="left"> Vox (HazbinH), Dozer, Sorrow, Kookoo (Grace), HandPlates!Gaster (UT), Onett (BeeSwarm Sim, Rblx), Saiki (Saiki K.), Shikamaru Naka, Iruka Umino (Naruto), Ballam (Iruma-Kun), Jack Abbot (The Pitt), BoJack Horseman (BoJack Horseman), Viktor, Silco (Arcane)
+<h5 align="left"> Vox (HazbinH), D3rLord3, The King in Yellow (SFAWTDE/DAWTDE), Dozer, Sorrow, Kookoo (Grace), HandPlates!Gaster (UT), Onett (BeeSwarm Sim, Rblx), Saiki (Saiki K.), Shikamaru Naka, Iruka Umino (Naruto), Ballam (Iruma-Kun), Jack Abbot (The Pitt), BoJack Horseman (BoJack Horseman), Viktor, Silco (Arcane)
