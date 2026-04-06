@@ -1,5 +1,5 @@
 <img width="1000" height="250" alt="image" src="https://github.com/user-attachments/assets/d41ae659-3f42-43a1-8e84-ba5cf9b0a317"/>
-<img width="450" height="750" align="left" src="https://github.com/user-attachments/assets/79f7e875-0b19-4b04-8ceb-189f40532bd3"  />
+<img width="450" height="750" align="left" src="https://github.com/user-attachments/assets/ebe75938-dead-4bb2-bb6b-4a148478ea65"  />
 <h3 align="center"><img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/2044b626-b9b9-43c3-8788-fea773bd3633" /> BFYI
 <h5 align="left">—1 WE ARE A SYSTEM! If you do not wish to interact with systems, don't interact with us. Different alters mean different typing quirk, ask who's in front, we won't bite!! </h5>
 <h5 align="left">—2 <16 PLEASE IWC!!! I AM AN ADULT </h5>
@@ -32,3 +32,4 @@
 <h5 align="left">— Systems 
 <h3 align="center"><img width="40" height="40" alt="image" src="https://64.media.tumblr.com/d66eecaee62838f0c41903982bdfc224/6be080b5da4b8b6a-a8/s500x750/918037c2eca2248226d366e5b11ed30ba467ff92.gifv" />!! EXTRA !!
 <h5 align="left">Always around to listen or to talk, just whisper or ask us to talk, we'll do our best to help, love you, stay safe out there :]
+
