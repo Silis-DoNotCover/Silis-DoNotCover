@@ -1,22 +1,34 @@
-<img width="2035" height="74" alt="image" src="https://github.com/user-attachments/assets/ed65c7a8-acea-42a2-bdf7-4b3c3f8f02cc" />
-<img width="450" height="600" align="left" src="https://github.com/user-attachments/assets/90d2d070-efa9-4247-85f8-ffa24aca0b91" />
-<h3 align="center"> <img width="300" height="270"  src="https://github.com/user-attachments/assets/44b3f181-567b-4894-b7dc-f947c7f43cca" /> </h3>
-<h5 align="left"> 1. Please use tone tags with me; It can be very difficult for me to tell tone through text.</h4>
-<h5 align="left"> 2. I am not good at reading social cues. If I ever make you uncomfortable, please tell. Always set boundaries! </h4>
-<h5 align="left"> 3. Please Follow basic DNI Criteria [T.R.A.S.H.] (Pro/Dark\Shippers DNI)</h4>
-<h5 align="left"> 4. I am an Adult, <16 please IWC.
-<h3 align="center"> <img width="1000" height="99" alt="image" src="https://github.com/user-attachments/assets/39a465ee-c2a7-40f9-ba70-dce8f76b4eb2" />
-<img width="400" height="400" alt="image" align="right" src="https://github.com/user-attachments/assets/0347c968-373e-4fb7-937b-ecc1f57c3880" />
-<h3 align="center"><img  width="270" height="220" src="https://github.com/user-attachments/assets/540b90e9-90bc-4764-9863-320b7ddd71ca" />
-<h5 align="left"> You could consider me chronically online. I love consuming media, be it personal interests or those of my friends. 
-<<h5 align="left"> I'm also a big chatterbox! I love to spark up conversations about my interests. Feel free to INT if we are in the same fandoms.
-<h5 align="left"> I only C(uddle) + H(hide) with friends, or mutals (Mutuals please ask first) unless stated otherwise in my name. 
-<h5 align="left"> Some things about me are that I LOVE energy drinks, and playful teasing with friends. 
-</h5></h5></h5></br>
-<img width="400" height="450 alt="image" align="left" src="https://github.com/user-attachments/assets/94730c03-6bbf-4967-8978-b96dd749b8aa" />
-<h6 align="center"><img width="300" height="250" src="https://github.com/user-attachments/assets/f13df89e-528b-4b59-ad40-efbd4820a92c" />
-<h3 align="left"> >> Media I Enjoy 
-<h5 align="left"> Roblox > Grace, Phighting, , BlockTales, 99 Nights in The Forest, Depth Spelunking, Dandy's World, Guts & BlackPowder, Dolly's Factory, bee Swarm Sim (OTHER FANS PEASE INT)
-<h5 align="left"> Other> Dead By Daylight, Minecraft, Minecraft ARGs, MineSweeper, Slime Rancher (1&2), OverWatch, Marvel Rivals, UnderTale ([UT]esp AUs!), DeltaRune[DR], Arcane(Show), BoJack Horseman (Show), The Pitt(Show), House MD(Show), Welcome to Demon School Iruma-Kun(Anime/Manga)
-<h3 align="left"> >> Comfort Characters
-<h5 align="left"> Vox (HazbinH), D3rLord3, The King in Yellow (SFAWTDE/DAWTDE), Dozer, Sorrow, Kookoo (Grace), HandPlates!Gaster (UT), Onett (BeeSwarm Sim, Rblx), Saiki (Saiki K.), Shikamaru Naka, Iruka Umino (Naruto), Ballam (Iruma-Kun), Jack Abbot (The Pitt), BoJack Horseman (BoJack Horseman), Viktor, Silco (Arcane)
+<img width="1000" height="250" alt="image" src="https://github.com/user-attachments/assets/d41ae659-3f42-43a1-8e84-ba5cf9b0a317"/>
+<img width="450" height="700" align="left" src="https://github.com/user-attachments/assets/79f7e875-0b19-4b04-8ceb-189f40532bd3"  />
+<h3 align="center"><img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/2044b626-b9b9-43c3-8788-fea773bd3633" /> BFYI
+<h5 align="left">—1 WE ARE A SYSTEM! If you do not wish to interact with systems, don't interact with us. Different alters mean different typing quirk, ask who's in front, we won't bite!! </h5>
+<h5 align="left">—2 <16 PLEASE IWC!!! I AM AN ADULT </h5>
+<h5 align="left">—3 You can sit with me all the time as long as my other friends are okay with it!</h4>
+<h5 align="left">—4 Please respect the basic DNI criteria!! 
+<h5 align="left">—5 Generally, just do not bring up any heated arguments towards our way, if you have an issue, we will gladly address it in a  civil manner!!
+<h5 align="left">—6 If we do not answer, don't worry, we are probably just 
+<h3 align="center"> <img width="1000" height="99" alt="image" src="https://github.com/user-attachments/assets/dcfc0f39-5c04-4469-91da-b9124fe88d79" />
+<img width="360" height="400" alt="image" align="left" src="https://github.com/user-attachments/assets/750a828a-add5-42df-9848-c0723bee1421" />
+<h3 align="center"><img width="40" height="40" alt="image" src="https://64.media.tumblr.com/00a2184b8259050112407017835ec263/ffff390c7ea62579-ff/s75x75_c1/a8721f456cf2ca3f8777dff3f472050df954c682.gifv" />!! DNI !!
+<h6 align="center">If you Support  Participate, Tolerate or Justify said actions, DO NOT INTERACT.
+<h5 align="left">— BASIC DNI CRITERIA. (Racists, Pedophiles, Against LGBTQ+)
+<h5 align="left">— Body Shaming
+<h5 align="left">— Pro/Dark/Com shippers
+<h5 align="left">— Disorder Fakers
+<h5 align="left">— Bullying to emotionally harm
+</h5></h5></h5></br></br></br>
+<img width="360" height="800" align="left" src="https://github.com/user-attachments/assets/b2fa7691-85a2-4eba-b8a5-adad9af2ee38" />
+<h3 align="center"><img width="40" height="40" alt="image" src="https://64.media.tumblr.com/64c8bc4dc2f68ea3c927727023ab41f3/2dc146d3bac1db79-ad/s75x75_c1/d6ad97713683a88267d78062cef22c658ea76489.gifv" />!! INT !!
+<h5 align="left">— MINIATURE COOKING ENJOYERS & LOVERS PLEASE WYA
+<h5 align="left">— Minecraft/Roblox ARGs
+<h5 align="left">— Anime Fans
+<h5 align="left">— MM12 (May Madness 2012)
+<h5 align="left">— Cosplayers
+<h5 align="left">— MCYT
+<h5 align="left">— Mini Japanese food enjoyers 
+<h5 align="left">— CoD Enjoyers/Lovers
+<h5 align="left">— Horror Games/Movies (I'd like to know more about you guys... come out 👀)
+<h5 align="left">— Music lovers/enjoyers
+<h5 align="left">— Systems 
+<h3 align="center"><img width="40" height="40" alt="image" src="https://64.media.tumblr.com/d66eecaee62838f0c41903982bdfc224/6be080b5da4b8b6a-a8/s500x750/918037c2eca2248226d366e5b11ed30ba467ff92.gifv" />!! EXTRA !!
+<h5 align="left">Always around to listen or to talk, just whisper or ask us to talk, we'll do our best to help, love you, stay safe out there :]
