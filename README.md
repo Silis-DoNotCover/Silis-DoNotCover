@@ -1,5 +1,5 @@
 <img width="1000" height="250" alt="image" src="https://github.com/user-attachments/assets/d41ae659-3f42-43a1-8e84-ba5cf9b0a317"/>
-<img width="450" height="700" align="left" src="https://github.com/user-attachments/assets/79f7e875-0b19-4b04-8ceb-189f40532bd3"  />
+<img width="450" height="750" align="left" src="https://github.com/user-attachments/assets/79f7e875-0b19-4b04-8ceb-189f40532bd3"  />
 <h3 align="center"><img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/2044b626-b9b9-43c3-8788-fea773bd3633" /> BFYI
 <h5 align="left">—1 WE ARE A SYSTEM! If you do not wish to interact with systems, don't interact with us. Different alters mean different typing quirk, ask who's in front, we won't bite!! </h5>
 <h5 align="left">—2 <16 PLEASE IWC!!! I AM AN ADULT </h5>
