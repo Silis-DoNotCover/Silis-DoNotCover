@@ -5,13 +5,12 @@
 <h5 align="left"> 2. I am not good at reading social cues. If I ever make you uncomfortable, please tell. Always set boundaries! </h4>
 <h5 align="left"> 3. Please Follow basic DNI Criteria [T.R.A.S.H.] (Pro/Dark\Shippers DNI)</h4>
 <h5 align="left"> 4. I am an Adult, <16 please IWC.
-<h5 align="left"> 5. Any of my friends are welcome to C+H w/ me.
 <h3 align="center"> <img width="1000" height="99" alt="image" src="https://github.com/user-attachments/assets/39a465ee-c2a7-40f9-ba70-dce8f76b4eb2" />
 <img width="400" height="400" alt="image" align="right" src="https://github.com/user-attachments/assets/0347c968-373e-4fb7-937b-ecc1f57c3880" />
 <h3 align="center"><img  width="270" height="220" src="https://github.com/user-attachments/assets/540b90e9-90bc-4764-9863-320b7ddd71ca" />
 <h5 align="left"> You could consider me chronically online. I love consuming media, be it personal interests or those of my friends. 
 <<h5 align="left"> I'm also a big chatterbox! I love to spark up conversations about my interests. Feel free to INT if we are in the same fandoms.
-<h5 align="left"> I only C(uddle) + H(hide) with friends, or mutals (Mutuals please ask first) unless stated otherwise in my name. 
+<h5 align="left"> I only C(uddle) + H(hide) with friends, or mutals (Mutuals please ask first) unless stated otherwise in my name. If you are a friend than there is no need to ask! C+H is always welcome w/ friends.
 <h5 align="left"> Some things about me are that I LOVE energy drinks, and playful teasing with friends. 
 </h5></h5></h5></br>
 <img width="400" height="450 alt="image" align="left" src="https://github.com/user-attachments/assets/94730c03-6bbf-4967-8978-b96dd749b8aa" />
