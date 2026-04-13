@@ -17,18 +17,10 @@
 <h5 align="left"> ◦ i value my gf and my other friends highly and am protective of them! </h4>
 <h5 align="left"> ◦ i like playing cozy games, roblox, and visual novels when im not working </h4>
 <h5 align="left"> ◦ i am a yumeshipper, no im not telling you who i yume with unless i know you.
-</h5></h5></h5></br>
-<img width="400" height="450 alt="image" align="left" src="https://github.com/user-attachments/assets/94730c03-6bbf-4967-8978-b96dd749b8aa" />
-<h6 align="center"><img width="300" height="250" src="https://github.com/user-attachments/assets/f13df89e-528b-4b59-ad40-efbd4820a92c" />
-<h3 align="left"> >> Media I Enjoy 
-<h5 align="left"> Roblox > Grace, Phighting, , BlockTales, 99 Nights in The Forest, Depth Spelunking, Dandy's World, Guts & BlackPowder, Dolly's Factory, bee Swarm Sim (OTHER FANS PEASE INT)
-<h5 align="left"> Other> Dead By Daylight, Minecraft, Minecraft ARGs, MineSweeper, Slime Rancher (1&2), OverWatch, Marvel Rivals, UnderTale ([UT]esp AUs!), DeltaRune[DR], Arcane(Show), BoJack Horseman (Show), The Pitt(Show), House MD(Show), Welcome to Demon School Iruma-Kun(Anime/Manga)
-<h3 align="left"> >> Comfort Characters
-<h5 align="left"> Vox (HazbinH), D3rLord3, The King in Yellow (SFAWTDE/DAWTDE), Dozer, Sorrow, Kookoo (Grace), HandPlates!Gaster (UT), Onett (BeeSwarm Sim, Rblx), Saiki (Saiki K.), Shikamaru Naka, Iruka Umino (Naruto), Ballam (Iruma-Kun), Jack Abbot (The Pitt), BoJack Horseman (BoJack Horseman), Viktor, Silco (Arcane)
-<img width="2048" height="132" alt="image" src="https://github.com/user-attachments/assets/7041187c-28cf-4111-b6ae-6913d640b659" />
-<img width="2048" height="132" alt="image" src="https://github.com/user-attachments/assets/4b4bef68-93f9-4d0d-84fb-e6dce5b54ce5" />
-
-![Uploading Alias ‘delivery’ (35).png…]()
-<img width="841" height="1003" alt="Alias ‘delivery’ (37)" src="https://github.com/user-attachments/assets/fecb4c99-ce03-41a1-ae63-af2ab919d26e" />
-<img width="858" height="371" alt="Alias ‘delivery’ (38)" src="https://github.com/user-attachments/assets/67013fa4-259b-4c3f-a2df-ec7544df26f9" />
-<img width="563" height="839" alt="Alias ‘delivery’ (39)" src="https://github.com/user-attachments/assets/94efc92b-e369-47db-9387-b95b34876e22" />
+<h6 align="center"><img width="300" height="250" src="https://github.com/user-attachments/assets/8ea81e48-ebcb-4a1c-94fe-619c8146a130" />
+<h3 align="left"> Roblox;
+<h5 align="left"> adopt me, bad things, blocktales, color book / color by number, dandy's world, die of death, doodle world, enigma, forsaken, frozen soul [dg], grace, laundry simulator, let him go, mr dinosaurs house, ocean terror, phighting, pressure, regretevator, teacup hollow, the circus in the sky, the hybrid cafe, waapp. i also enjoy admins, lore, and myths!
+<h3 align="left"> Viusal Novels;
+<h5 align="left"> 14 days with you, a date with death, john doe, mushroom oasis, the freak circus, the kid at the back
+<h3 align="left"> Other; 
+<h5 align="left">alt music / fashion, animal jam, ARGs, coding / programming, commentary youtube, deltarune / undertale, fnaf, iceberg/deep dive videos, mlp, moshi monsters, pokemon / nintendo in general, space, web design / graphics, vocaloid, yume nikki + fangames
