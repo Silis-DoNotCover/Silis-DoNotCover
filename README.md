@@ -1,26 +1,22 @@
-<img width="2035" height="100" alt="image" src="https://github.com/user-attachments/assets/7041187c-28cf-4111-b6ae-6913d640b659" />
-<img width="450" height="600" align="left" src="https://github.com/user-attachments/assets/fecb4c99-ce03-41a1-ae63-af2ab919d26e" />
-<h3 align="center"> <img width="200" height="150" alt="Alias ‘delivery’ (34)" src="https://github.com/user-attachments/assets/9896f529-00f5-4103-bea4-c257a349dc7f" />
-<h5 align="left"> 1. i am a fulltime retail employee - i may be afk on pt, whispers are preferred to contact me</h4>
-<h5 align="left"> 2. mentally unwell +  awful amnesia - approach me gently + remind me of stuff if i dont remember something happening between us. </h4>
-<h5 align="left"> 3. autistic + require tonetags -  /j, /ref, /pos, /neg are the ones i mainly need. i also use tonetags.</h4>
-<h5 align="left"> 4. adult - i prefer to only talk with other adults. my humor and interests tend to not be safe for minors. </h5>
-<h5 align="left"> 5. just because im a fan of something doesnt mean i support problematic people behind the projects or blindly defend them. i consume media critically and so should you </h4>
-<h5 align="left"> 6. weirdo / copier = block.
-<h3 align="center"> <img width="2170" height="188" alt="Alias ‘delivery’ (35)" src="https://github.com/user-attachments/assets/d3fb8684-faf1-40da-b033-419840993929" />
-<img width="450" height="800" align="right" src="https://github.com/user-attachments/assets/94efc92b-e369-47db-9387-b95b34876e22" />
-<h3 align="center"><img  width="270" height="250" src="https://github.com/user-attachments/assets/67013fa4-259b-4c3f-a2df-ec7544df26f9" />
-<h5 align="left"> ◦ i have a girlboyfriend collectively!</h4>
-<h5 align="left"> ◦ i go between using i/we frequently. i refer to my "parts" as headmates and angels. (i love to yap about my system with those im close with) </h4>
-<h5 align="left"> ◦ i identify with being nonhuman; angel, cat, bunny, deer, alien, fennec fox, vampire, etc. i love meeting others with the same nh types! </h4>
-<h5 align="left"> ◦ i am mentally unstable and easily overwhelmed</h5>
-<h5 align="left"> ◦ i value my gf and my other friends highly and am protective of them! </h4>
-<h5 align="left"> ◦ i like playing cozy games, roblox, and visual novels when im not working </h4>
-<h5 align="left"> ◦ i am a yumeshipper, no im not telling you who i yume with unless i know you.
-<h6 align="center"><img width="300" height="250" src="https://github.com/user-attachments/assets/8ea81e48-ebcb-4a1c-94fe-619c8146a130" />
-<h3 align="left"> Roblox;
-<h5 align="left"> adopt me, bad things, blocktales, color book / color by number, dandy's world, die of death, doodle world, enigma, forsaken, frozen soul [dg], grace, laundry simulator, let him go, mr dinosaurs house, ocean terror, phighting, pressure, regretevator, teacup hollow, the circus in the sky, the hybrid cafe, waapp. i also enjoy admins, lore, and myths!
-<h3 align="left"> Viusal Novels;
-<h5 align="left"> 14 days with you, a date with death, john doe, mushroom oasis, the freak circus, the kid at the back
-<h3 align="left"> Other; 
-<h5 align="left">alt music / fashion, animal jam, ARGs, coding / programming, commentary youtube, deltarune / undertale, fnaf, iceberg/deep dive videos, mlp, moshi monsters, pokemon / nintendo in general, space, web design / graphics, vocaloid, yume nikki + fangames
+<img width="2035" height="74" alt="image" src="https://github.com/user-attachments/assets/ed65c7a8-acea-42a2-bdf7-4b3c3f8f02cc" />
+<img width="450" height="600" align="left" src="https://github.com/user-attachments/assets/90d2d070-efa9-4247-85f8-ffa24aca0b91" />
+<h3 align="center"> <img width="300" height="270"  src="https://github.com/user-attachments/assets/44b3f181-567b-4894-b7dc-f947c7f43cca" /> </h3>
+<h5 align="left"> 1. Tone tags are a must; It can be very difficult for me to tell tone through text. If you're unsure how/when, ask.</h4>
+<h5 align="left"> 2. I am not good at reading social cues. If I ever make you uncomfortable, please tell. Always set boundaries! </h4>
+<h5 align="left"> 3. Please Follow basic DNI Criteria [T.R.A.S.H.] (Pro/Dark\Shippers DNI)</h4>
+<h5 align="left"> 4. I am an Adult, <16 please IWC.
+<h3 align="center"> <img width="1000" height="99" alt="image" src="https://github.com/user-attachments/assets/39a465ee-c2a7-40f9-ba70-dce8f76b4eb2" />
+<img width="400" height="400" alt="image" align="right" src="https://github.com/user-attachments/assets/0347c968-373e-4fb7-937b-ecc1f57c3880" />
+<h3 align="center"><img  width="270" height="220" src="https://github.com/user-attachments/assets/540b90e9-90bc-4764-9863-320b7ddd71ca" />
+<h5 align="left"> You could consider me chronically online. I love consuming media, be it personal interests or those of my friends. 
+<<h5 align="left"> I'm also a big chatterbox! I love to spark up conversations about my interests. Feel free to INT if we are in the same fandoms.
+<h5 align="left"> I only C(uddle) + H(hide) with friends, or mutals (Mutuals please ask first) unless stated otherwise in my name. If you are a friend than there is no need to ask! C+H is always welcome w/ friends.
+<h5 align="left"> Some things about me are that I LOVE energy drinks, and playful teasing with friends. 
+</h5></h5></h5></br>
+<img width="400" height="450 alt="image" align="left" src="https://github.com/user-attachments/assets/94730c03-6bbf-4967-8978-b96dd749b8aa" />
+<h6 align="center"><img width="300" height="250" src="https://github.com/user-attachments/assets/f13df89e-528b-4b59-ad40-efbd4820a92c" />
+<h3 align="left"> >> Media I Enjoy 
+<h5 align="left"> Roblox > Grace, Phighting, , BlockTales, 99 Nights in The Forest, Depth Spelunking, Dandy's World, Guts & BlackPowder, Dolly's Factory, bee Swarm Sim (OTHER FANS PEASE INT)
+<h5 align="left"> Other> Dead By Daylight, Minecraft, Minecraft ARGs, MineSweeper, Slime Rancher (1&2), OverWatch, Marvel Rivals, UnderTale ([UT]esp AUs!), DeltaRune[DR], Arcane(Show), BoJack Horseman (Show), The Pitt(Show), House MD(Show), Welcome to Demon School Iruma-Kun(Anime/Manga)
+<h3 align="left"> >> Comfort Characters
+<h5 align="left"> Vox (HazbinH), D3rLord3, The King in Yellow (SFAWTDE/DAWTDE), Dozer, Sorrow, Kookoo (Grace), HandPlates!Gaster (UT), Onett (BeeSwarm Sim, Rblx), Saiki (Saiki K.), Shikamaru Naka, Iruka Umino (Naruto), Ballam (Iruma-Kun), Jack Abbot (The Pitt), BoJack Horseman (BoJack Horseman), Viktor, Silco (Arcane)
