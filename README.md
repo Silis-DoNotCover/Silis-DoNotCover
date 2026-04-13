@@ -8,12 +8,15 @@
 <h5 align="left"> 5. just because im a fan of something doesnt mean i support problematic people behind the projects or blindly defend them. i consume media critically and so should you </h4>
 <h5 align="left"> 6. weirdo / copier = block.
 <h3 align="center"> <img width="2170" height="188" alt="Alias ‘delivery’ (35)" src="https://github.com/user-attachments/assets/d3fb8684-faf1-40da-b033-419840993929" />
-<img width="400" height="400" alt="image" align="right" src="https://github.com/user-attachments/assets/0347c968-373e-4fb7-937b-ecc1f57c3880" />
-<h3 align="center"><img  width="270" height="220" src="https://github.com/user-attachments/assets/540b90e9-90bc-4764-9863-320b7ddd71ca" />
-<h5 align="left"> You could consider me chronically online. I love consuming media, be it personal interests or those of my friends. 
-<<h5 align="left"> I'm also a big chatterbox! I love to spark up conversations about my interests. Feel free to INT if we are in the same fandoms.
-<h5 align="left"> I only C(uddle) + H(hide) with friends, or mutals (Mutuals please ask first) unless stated otherwise in my name. If you are a friend than there is no need to ask! C+H is always welcome w/ friends.
-<h5 align="left"> Some things about me are that I LOVE energy drinks, and playful teasing with friends. 
+<img width="450" height="800" align="right" src="https://github.com/user-attachments/assets/94efc92b-e369-47db-9387-b95b34876e22" />
+<h3 align="center"><img  width="270" height="250" src="https://github.com/user-attachments/assets/67013fa4-259b-4c3f-a2df-ec7544df26f9" />
+<h5 align="left"> ◦ i have a girlboyfriend collectively!</h4>
+<h5 align="left"> ◦ i go between using i/we frequently. i refer to my "parts" as headmates and angels. (i love to yap about my system with those im close with) </h4>
+<h5 align="left"> ◦ i identify with being nonhuman; angel, cat, bunny, deer, alien, fennec fox, vampire, etc. i love meeting others with the same nh types! </h4>
+<h5 align="left"> ◦ i am mentally unstable and easily overwhelmed</h5>
+<h5 align="left"> ◦ i value my gf and my other friends highly and am protective of them! </h4>
+<h5 align="left"> ◦ i like playing cozy games, roblox, and visual novels when im not working </h4>
+<h5 align="left"> ◦ i am a yumeshipper, no im not telling you who i yume with unless i know you.
 </h5></h5></h5></br>
 <img width="400" height="450 alt="image" align="left" src="https://github.com/user-attachments/assets/94730c03-6bbf-4967-8978-b96dd749b8aa" />
 <h6 align="center"><img width="300" height="250" src="https://github.com/user-attachments/assets/f13df89e-528b-4b59-ad40-efbd4820a92c" />
@@ -27,3 +30,5 @@
 
 ![Uploading Alias ‘delivery’ (35).png…]()
 <img width="841" height="1003" alt="Alias ‘delivery’ (37)" src="https://github.com/user-attachments/assets/fecb4c99-ce03-41a1-ae63-af2ab919d26e" />
+<img width="858" height="371" alt="Alias ‘delivery’ (38)" src="https://github.com/user-attachments/assets/67013fa4-259b-4c3f-a2df-ec7544df26f9" />
+<img width="563" height="839" alt="Alias ‘delivery’ (39)" src="https://github.com/user-attachments/assets/94efc92b-e369-47db-9387-b95b34876e22" />
