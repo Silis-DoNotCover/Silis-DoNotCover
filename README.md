@@ -12,6 +12,7 @@
 <<h5 align="left"> I'm also a big chatterbox! I love to spark up conversations about my interests. Feel free to INT if we are in the same fandoms.
 <h5 align="left"> I only C(uddle) + H(hide) with friends, or mutals (Mutuals please ask first) unless stated otherwise in my name. If you are a friend than there is no need to ask! C+H is always welcome w/ friends.
 <h5 align="left"> Some things about me are that I LOVE energy drinks, and playful teasing with friends. 
+<h5 align="left"> 
 </h5></h5></h5></br>
 <img width="400" height="450 alt="image" align="left" src="https://github.com/user-attachments/assets/94730c03-6bbf-4967-8978-b96dd749b8aa" />
 <h6 align="center"><img width="300" height="250" src="https://github.com/user-attachments/assets/f13df89e-528b-4b59-ad40-efbd4820a92c" />
@@ -20,3 +21,7 @@
 <h5 align="left"> Other> Dead By Daylight, Minecraft, Minecraft ARGs, MineSweeper, Slime Rancher (1&2), OverWatch, Marvel Rivals, UnderTale ([UT]esp AUs!), DeltaRune[DR], Arcane(Show), BoJack Horseman (Show), The Pitt(Show), House MD(Show), Welcome to Demon School Iruma-Kun(Anime/Manga)
 <h3 align="left"> >> Comfort Characters
 <h5 align="left"> Vox (HazbinH), D3rLord3, The King in Yellow (SFAWTDE/DAWTDE), Dozer, Sorrow, Kookoo (Grace), HandPlates!Gaster (UT), Onett (BeeSwarm Sim, Rblx), Saiki (Saiki K.), Shikamaru Naka, Iruka Umino (Naruto), Ballam (Iruma-Kun), Jack Abbot (The Pitt), BoJack Horseman (BoJack Horseman), Viktor, Silco (Arcane)
+<h5 align="left"><details>
+<summary><h3 align="left">>> Kin List</summary>
+Saiki K., Caine, Onett, Ballam, HandPlates!Gster, Sniper, Dyle, Silco, Sorrow, LoLBit, Andrew2002, The King in Yellow, Captain Sweeper
+</details>
