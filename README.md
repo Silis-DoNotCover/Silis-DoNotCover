@@ -1,12 +1,15 @@
-<img width="1280" height="99" alt="566600584-39a465ee-c2a7-40f9-ba70-dce8f76b4eb2" src="https://github.com/user-attachments/assets/0341281a-a7c2-4d8b-9b98-a033d4735d79" />
-<img width="2035" height="74" alt="image" src="https://github.com/user-attachments/assets/ed65c7a8-acea-42a2-bdf7-4b3c3f8f02cc" />
-<img width="450" height="600" align="left" src="https://github.com/user-attachments/assets/90d2d070-efa9-4247-85f8-ffa24aca0b91" />
-<h3 align="center"> <img width="300" height="270"  src="https://github.com/user-attachments/assets/44b3f181-567b-4894-b7dc-f947c7f43cca" /> </h3>
-<h5 align="left"> 1. Tone tags are a must; It can be very difficult for me to tell tone through text. If you're unsure how/when, ask.</h4>
-<h5 align="left"> 2. I am not good at reading social cues. If I ever make you uncomfortable, please tell. Always set boundaries! </h4>
-<h5 align="left"> 3. Please Follow basic DNI Criteria [T.R.A.S.H.] (Pro/Dark\Shippers DNI)</h4>
-<h5 align="left"> 4. I am an Adult, <16 please IWC.
-<h5 align="left"> 5. All my interactions are stricely platonic. 
+<img width="2035" height="74" alt="image" src="https://github.com/Silis-DoNotCover/Silis-DoNotCover/blob/d71d8e11229d34a2a5363d5791b9b1b4ee488610/Yarn.png" />
+<img width="450" height="1000" align="left" src="https://github.com/Silis-DoNotCover/Silis-DoNotCover/blob/ae698e7213bdecc4b3dee8f986a8667e8b0d6f7b/Alias%20%E2%80%98delivery%E2%80%99%20(37).png" />
+<h3 align="center"> <img width="300" height="270"  src="https://github.com/Silis-DoNotCover/Silis-DoNotCover/blob/d71d8e11229d34a2a5363d5791b9b1b4ee488610/BFYI.png" /> </h3>
+<h5 align="left"> - Tone Tags are a must when communicating with me. No matter how well we know each other, I am unable to interrupt tone in messages.</h4>
+<h5 align="left"> --- Likewise I am bad at social cues, I may be unsure what to do in social situations. </h4>
+<h5 align="left"> - DNI about ERP 
+<h5 align="left"> --- Thin Ice for sexual comments/jokes (If we are friends, please ask)</h4>
+<h5 align="left"> - Follow basic DNI Criteria [T.R.A.S.H.] (Pro/Dark\Shippers DNI)
+<h5 align="left"> --- Transphobic, Racist, Ableist, Sexist and Homophobic
+<h5 align="left"> - I am an Adult. Any minors please IWEC, and <16 please do not friend me.
+<h5 align="left"> - All my interactions are strictly platonic. While I may sit with friends as ships, we are still just friends.
+<h5 align="left"> - I do NOT make 99% of my skins. They are mostly gifted by Kathy. Do not copy my skins, and do not use them for reference without Kathy’s approval.
 <h3 align="center"> <img width="1000" height="99" alt="image" src="https://github.com/user-attachments/assets/39a465ee-c2a7-40f9-ba70-dce8f76b4eb2" />
 <img width="400" height="400" alt="image" align="right" src="https://github.com/user-attachments/assets/0347c968-373e-4fb7-937b-ecc1f57c3880" />
 <h3 align="center"><img  width="270" height="220" src="https://github.com/user-attachments/assets/540b90e9-90bc-4764-9863-320b7ddd71ca" />
