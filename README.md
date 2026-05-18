@@ -1,5 +1,5 @@
 <img width="2035" height="150" alt="image" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/94508aac3f6e4187948aa51f1e2fde44ba104580/Moch.png" />
-<img width="600" height="1000" align="right" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/846e5e71f736515492bedd56cda3a4b4f050a454/Moch1.png" />
+<img width="400" height="1000" align="right" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/846e5e71f736515492bedd56cda3a4b4f050a454/Moch1.png" />
 <h3 align="center"> <img width="300" height="270"  src="https://github.com/Silis-DoNotCover/image-maxxing/blob/52272ae451ca7b5bec3ed4f120edd3a497f775cb/Moch2.png" /> </h3>
 </br>
 <h5 align="left"> ☆ basic dni criteria
