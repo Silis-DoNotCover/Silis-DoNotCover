@@ -1,15 +1,13 @@
-<img width="2035" height="74" alt="image" src="https://github.com/Silis-DoNotCover/Silis-DoNotCover/blob/d71d8e11229d34a2a5363d5791b9b1b4ee488610/Yarn.png" />
-<img width="450" height="1000" align="left" src="https://github.com/Silis-DoNotCover/Silis-DoNotCover/blob/ae698e7213bdecc4b3dee8f986a8667e8b0d6f7b/Alias%20%E2%80%98delivery%E2%80%99%20(37).png" />
-<h3 align="center"> <img width="300" height="270"  src="https://github.com/Silis-DoNotCover/Silis-DoNotCover/blob/d71d8e11229d34a2a5363d5791b9b1b4ee488610/BFYI.png" /> </h3>
-<h5 align="left"> - Tone Tags are a must when communicating with me. No matter how well we know each other, I am unable to interrupt tone in messages.</h4>
-<h5 align="left"> --- Likewise I am bad at social cues, I may be unsure what to do in social situations. </h4>
-<h5 align="left"> - DNI about ERP 
-<h5 align="left"> --- Thin Ice for sexual comments/jokes (If we are friends, please ask)</h4>
-<h5 align="left"> - Follow basic DNI Criteria [T.R.A.S.H.] (Pro/Dark\Shippers DNI)
-<h5 align="left"> --- Transphobic, Racist, Ableist, Sexist and Homophobic
-<h5 align="left"> - I am an Adult. Any minors please IWEC, and <16 please do not friend me.
-<h5 align="left"> - All my interactions are strictly platonic. While I may sit with friends as ships, we are still just friends.
-<h5 align="left"> - I do NOT make 99% of my skins. They are mostly gifted by Kathy. Do not copy my skins, and do not use them for reference without Kathy’s approval.
+<img width="2035" height="150" alt="image" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/94508aac3f6e4187948aa51f1e2fde44ba104580/Moch.png" />
+<img width="600" height="1000" align="right" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/846e5e71f736515492bedd56cda3a4b4f050a454/Moch1.png" />
+<h3 align="center"> <img width="300" height="270"  src="https://github.com/Silis-DoNotCover/image-maxxing/blob/52272ae451ca7b5bec3ed4f120edd3a497f775cb/Moch2.png" /> </h3>
+</br>
+<h5 align="left"> ☆ basic dni criteria
+<h5 align="left"> ★ nsfw
+<h5 align="left"> ☆ vivziepop & dreamteam
+<h5 align="left"> ★ proshippers
+<h5 align="left"> ☆ extreme gore of any sort
+<h5 align="left"> ★ AI art
 <h3 align="center"> <img width="1000" height="99" alt="image" src="https://github.com/Silis-DoNotCover/Silis-DoNotCover/blob/d71d8e11229d34a2a5363d5791b9b1b4ee488610/Fabric.png" />
 <img width="400" height="400" alt="image" align="right" src="https://github.com/user-attachments/assets/0347c968-373e-4fb7-937b-ecc1f57c3880" />
 <h3 align="center"><img  width="270" height="220" src="https://github.com/Silis-DoNotCover/Silis-DoNotCover/blob/d71d8e11229d34a2a5363d5791b9b1b4ee488610/About%20me.png" />
